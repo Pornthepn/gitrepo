@@ -1,1 +1,2 @@
 HELLO My Friends
+มายเนม อิส แชมป์
